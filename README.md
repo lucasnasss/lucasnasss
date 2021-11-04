@@ -5,7 +5,7 @@ Aseja bem vindo(a) ao meu perfil 👋
 
 
 
-##Atualmente estou aprendendo <br/>
+## Atualmente estou aprendendo <br/>
 
 ![imagem](https://img.icons8.com/color/48/000000/javascript--v2.png>)
 <br/>
