@@ -1,6 +1,6 @@
 ### Olá! tudo bem com você? Espero que sim!
 
-Aseja bem vindo(a) ao meu perfil 👋
+Seja bem vindo(a) ao meu perfil 👋
 
 
 
